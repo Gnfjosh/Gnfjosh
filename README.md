@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Gnfjosh
 - 👀 I’m interested in web3 
-- 🌱 I’m currently learning real estate management
+
 - 💞️ I’m looking to collaborate on any web3 project
 - 📫 How to reach me : joshuavictor2307@gmail.com
 
